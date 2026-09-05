@@ -4,7 +4,7 @@
 
 Email Me 👉 ✉️ **abdullahahsan.dev@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enhancing my tech skills
+- 🔭 **I’m currently working on:** Enhancing my Tech Skills
 - 🌱 **I’m currently learning:** devOps
 - 👯 **I’m looking to collaborate on:** Enter your project name and info
 - 💬 **Ask me about:** Collaboration, Tech Support

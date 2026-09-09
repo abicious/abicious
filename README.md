@@ -1,5 +1,5 @@
 
-# 💫 Hi 👋, I'm Abdullah Ahsan
+# Hi 👋, I'm Abdullah Ahsan
 **A passionate Software Engineer || Full Stack Web & Mobile developer  **
 
 Email Me 👉 ✉️ **abdullahahsan.dev@gmail.com** For Collaboration/Project or Anything Else. 😊😊
